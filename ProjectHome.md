@@ -1,0 +1,1 @@
+buat label baju, jual label baju, label baju
